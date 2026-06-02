@@ -1,3 +1,3 @@
 # About Me
 * Catholic ✝️
-* _Website_: https://felipeglopez.github.io/ 💻
+* _Website_: https://felipeglopez.com/ 💻
